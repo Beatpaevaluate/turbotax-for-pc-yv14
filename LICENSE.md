@@ -1,4 +1,4 @@
-# 
+# Quicken for PC | Quicken for Windows vip Addon: cloud-sync & financial-reporting is the best Quicken for PC | Quicken for Windows addon, featuring cloud-sync and
 
 
 
